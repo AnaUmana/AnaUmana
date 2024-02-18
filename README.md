@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: You can reach me by email at anitau34@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: I enjoy playing video games, my current favorite game is Valorant!
 
 <!---
 AnaUmana/AnaUmana is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
